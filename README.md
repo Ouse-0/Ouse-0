@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ouse-0
+- 👀 I’m interested in software development.
+- 🌱 I’m currently learning software enginnering at uni.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Discord - Ouse.Ouse#4784
